@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **ziadhazim15@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/user/Downloads/Ziad%20Hazim.pdf](file:///C:/Users/user/Downloads/Ziad%20Hazim.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
